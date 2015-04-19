@@ -35,7 +35,7 @@ We condemn:
 
 If you say something that is found offensive, and you are called out on it, let’s:
 
-* Listen without interruption.
+* Read without interruption.
 * Believe what the person is saying & do not attempt to disqualify what they have to say.
 * Ask for tips / help with avoiding making the offense in the future.
 * Apologize and ask forgiveness.
